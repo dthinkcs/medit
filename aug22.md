@@ -1,0 +1,1 @@
+we all do things even though we want hapiness but we still do things that clearly makes us unhappy...carry the "pain" that others caused even though they have moved on after doing harm...you must let go and forgive and let it be sometimes 
