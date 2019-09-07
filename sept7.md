@@ -1,0 +1,1 @@
+one day angry one da laughig at the same thing...sometimes we get stuck...fail to notice the changes...external are not a sense of happiness..its defined by internal perception...queue at..clearly queue is not the problem..its our internal relationship with that event
