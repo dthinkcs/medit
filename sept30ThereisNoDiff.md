@@ -1,0 +1,2 @@
+
+everything arises in consciousness
