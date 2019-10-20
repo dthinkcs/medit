@@ -1,0 +1,1 @@
+playfulness -> do not negate the difficulty -> clarity -> do not feel wighed down/confused/doubt -> calm ease clarity is what we need most -> playfulness transorms our experience -> opportunity to learn, observe our stability game
